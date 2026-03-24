@@ -5,7 +5,7 @@
 🌐 Website: https://dripty.fun/  
 🐦 Twitter/X: https://x.com/DriptyFun  
 
-CA pump.fun : xxxxxxxxxxpump
+CA pump.fun : FJ95UnFj9oFW4Y2HvzzRBVebokCRfmnBuxYJtfKmpump
 ---
 
 ## 🚀 Overview
